@@ -1,3 +1,3 @@
 ## Código usado na aula:
 
-https://www.youtube.com/embed/Zej3O0o7v4o
+https://youtu.be/Zej3O0o7v4o
